@@ -6,9 +6,9 @@
 
 • *Hints*
 
-- Hint 1 : Well well well….wasn’t that already given in the intro ? (Hint given : It's someone we all know)
+~ Hint 1 : Well well well….wasn’t that already given in the intro ? (Hint given : It's someone we all know)
 
-- Hint 2 : Thala for a reason.
+~ Hint 2 : Thala for a reason.
 
 • *Answer* : Elon Musk
 
