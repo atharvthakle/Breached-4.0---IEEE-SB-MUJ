@@ -13,4 +13,4 @@ Lonewolf replied, “Explanations can wait; enter the passcode quickly before th
 
 *Answer* : 2444666668888888
 
-*Explanation* : Simple logic - one 2, three 4s, five 6s, seven 8s. 
+*EXPLANATION* : Simple logic - one 2, three 4s, five 6s, seven 8s. 
