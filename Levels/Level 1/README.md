@@ -5,7 +5,9 @@
 *Link Given* : https://docs.google.com/document/d/14j9Kgq3YuDvI7qcebfLIcb9whzQm1Q9E/edit?usp=sharing&ouid=117187140441132180883&rtpof=true&sd=true
 
 *Hints*
+
 • Hint 1 : Well well well….wasn’t that already given in the intro ? (Hint given : It's someone we all know)
+
 • Hint 2 : Thala for a reason.
 
 *Answer* : Elon Musk
