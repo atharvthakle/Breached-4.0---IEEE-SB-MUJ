@@ -2,7 +2,7 @@
 
 • *Question* : As the file slid under the door, my adventure began. General Xeros had hinted that what I sought in my journey wasn't straightforward, I needed to figure out what is needed and where it’s needed. So I gotta figure out how to retrieve it. On opening the file, all I see is : (given link)
 
-• *Link Given* : https://docs.google.com/document/d/14j9Kgq3YuDvI7qcebfLIcb9whzQm1Q9E/edit?usp=sharing&ouid=117187140441132180883&rtpof=true&sd=true
+• *Link* : https://docs.google.com/document/d/14j9Kgq3YuDvI7qcebfLIcb9whzQm1Q9E/edit?usp=sharing&ouid=117187140441132180883&rtpof=true&sd=true
 
 • *Hints*
 
