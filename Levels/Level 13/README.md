@@ -1,6 +1,7 @@
 • *Level 13 : Never Skip Ad*
 
 • *Question* : As I used the hidden message from the flags, a video materialized before me, but it played like an old, laggy TV commercial. Perplexed by this glitch, I wondered why the video was not as clear as the images and messages I had encountered earlier.
+
 “Let’s just write down whatever we can, it can have something for us” Lonewolf suggested. Agreeing with him I started writing whatever I could see but it looked a little weird as it was difficult to identify what kind of business was this ad about but only one thing was clear that the company was called First & Last Corp. Ltd. and it said they are one of the top 10 in the world.
 
 Take….Off
