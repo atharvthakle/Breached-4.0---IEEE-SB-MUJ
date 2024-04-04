@@ -1,6 +1,8 @@
 • *Level 3 : Passing The Guards*
 
-• *Question* : "Well, That was quite easy" remarked Lonewolf, "Unlocking the file triggered an involuntary activation of my virtual assistance through your stressed memory blocks." Curiously, I inquired, "Does that mean you'll always be with me?" Lonewolf's response carried a hint of disappointment, "It's uncertain. Tempus’s doing causes glitches and fluctuations. Our journey will be unpredictable, jumping across time and space, but always arriving where we need to be." Despite a rising sense of unease, I tried to muster courage. "Well, it can't get much worse, can it ?" Determined to press on, I noted, "Looks like I've reached the entrance to the hidden portal's room, but there are guards ahead- stiff like statues. Are they real, or just part of this strange world ?"
+• *Question* : "Well, That was quite easy" remarked Lonewolf, "Unlocking the file triggered an involuntary activation of my virtual assistance through your stressed memory blocks." Curiously, I inquired, "Does that mean you'll always be with me?" Lonewolf's response carried a hint of disappointment, "It's uncertain. Tempus’s doing causes glitches and fluctuations. Our journey will be unpredictable, jumping across time and space, but always arriving where we need to be." Despite a rising sense of unease, I tried to muster courage. "Well, it can't get much worse, can it ?"
+
+Determined to press on, I noted, "Looks like I've reached the entrance to the hidden portal's room, but there are guards ahead- stiff like statues. Are they real, or just part of this strange world ?"
 
 Guards : “Pekka Lundmark asks - 9 44 666 9 2 7777 8 44 33 2 777 8 444 7777 8 333 666 777 222 555 666 7777 444 66 4 222 33 777 33 6 666 66 999 666 333 4 33 66 33 7777 444 7777 3.0 ?”
 
