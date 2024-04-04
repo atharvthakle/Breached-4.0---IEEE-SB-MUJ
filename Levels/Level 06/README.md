@@ -1,6 +1,10 @@
 • *Level 6 : Timely Demise*
 
-• *Question* : “H- Hell- Hello- Lonewolf this side can you hear me ?” I replied anxiously and asked, “LONEWOLF !! Where did you disappear ?”. Lonewolf replied, “Told you about the glitches and fluctuations, it’s going to keep happening. So don’t rely too much on me, my friend”. “Yeah you’re right….Wait- What’s that ?! Now I am seeing floating messages and photos ?! Looks like a game as if options are given, or a robot’s view” I said with slight frustration and anger, “Wow, I am in a total mess, don’t know what they’ve done to me. Will deal with General Xeros and his people later.” Lonewolf inquired, “Which trail did you choose ?”. I replied, “I don’t know which trail goes where, just chose randomly. Hope it turns out good….not fatal”. Let’s see what this weird floating message got for me. “Welcome to the early 1800s….” WAIT WHAT-
+• *Question* : “H- Hell- Hello- Lonewolf this side can you hear me ?” I replied anxiously and asked, “LONEWOLF !! Where did you disappear ?”. Lonewolf replied, “Told you about the glitches and fluctuations, it’s going to keep happening. So don’t rely too much on me, my friend”.
+
+“Yeah you’re right….Wait- What’s that ?! Now I am seeing floating messages and photos ?! Looks like a game as if options are given, or a robot’s view” I said with slight frustration and anger, “Wow, I am in a total mess, don’t know what they’ve done to me. Will deal with General Xeros and his people later.”
+
+Lonewolf inquired, “Which trail did you choose ?”. I replied, “I don’t know which trail goes where, just chose randomly. Hope it turns out good….not fatal”. Let’s see what this weird floating message got for me. “Welcome to the early 1800s….” WAIT WHAT-
 
 Braille's whispers, Louis' age untold…number of truth in dots, behold
 
