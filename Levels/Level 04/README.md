@@ -2,7 +2,13 @@
 
 • *Question* : “And here we are, standing at the portal" I exclaimed, a sense of accomplishment washing over me.
 
-“I am a gateway through time's embrace, In ancient realms and future space. With coded keys, the portal calls, To journey where the timeline falls.”
+“I am a gateway through time's embrace,
+
+In ancient realms and future space.
+
+With coded keys, the portal calls,
+
+To journey where the timeline falls.”
 
 "Lonewolf, a poet as well ?" I quipped upon hearing the eloquent verse. “Hello ? Lonewolf ?! Can you hear me ??”
 
