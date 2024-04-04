@@ -2,7 +2,13 @@
 
 • *Question* : Venturing through the enigmatic twists of the Bermuda Triangle's temporal loophole, I stumbled into the heart of Shakespeare's era, finding myself within the bustling walls of his workplace. As I explored the surroundings, one book particularly caught my attention as it was being highlighted in my view, and its significance heightened by Lonewolf's intriguing words :
 
-“Within Shakespeare's tome of lore, Hidden messages, a cryptic score. Unravel with writer’s light, Move to the next stage, reveal the plight.”
+“Within Shakespeare's tome of lore,
+
+Hidden messages, a cryptic score.
+
+Unravel with writer’s light,
+
+Move to the next stage, reveal the plight.”
 
 (given link)
 
