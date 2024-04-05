@@ -2,9 +2,9 @@
 
 • *Question* : While I was busy solving levels of my journey, I received an email. Opening which, I stumbled upon an intriguing invitation to a music school. Amidst the symphony of sounds, lies the key to unlocking the next stage of my journey. Can I decipher the musical mysteries and uncover the hidden answer concealed within the melodic notes ?
 
-(given link - Spotify)
+(given link)
 
-• *Link - Drive* : https://drive.google.com/file/d/1oOyF9lgWnuk-pS4oktcDITiXfjd6NVT3/view?usp=sharing
+• *Link* : https://drive.google.com/file/d/1oOyF9lgWnuk-pS4oktcDITiXfjd6NVT3/view?usp=sharing
 
 • *Hints*
 
