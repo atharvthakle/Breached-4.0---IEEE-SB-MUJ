@@ -7,6 +7,7 @@ I said to myself, “Ok now Lonewolf is weirding me out”'
 (given link)
 
 • *Link* : https://docs.google.com/document/d/1AUQGiiSxyROKiQH-foyI5JTgtBLCeAdiodEx_3f7K3Q/edit?usp=sharing
+
 ~ Link Name (important in this level) : Page 342
 
 • *Hints*
