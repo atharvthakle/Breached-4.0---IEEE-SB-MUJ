@@ -13,3 +13,7 @@ Here, you'll find detailed explanations and solutions to all the challenging lev
 [LinkedIn](https://in.linkedin.com/company/ieeesbmuj)
 
 [Medium](https://medium.com/@ieeemuj)
+
+## License
+
+This repository is licensed under the MIT License.
